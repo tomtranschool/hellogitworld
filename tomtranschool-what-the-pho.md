@@ -1,4 +1,4 @@
-# What-the-pho (San Diego)
+What-the-Pho San Diego
 
 Location: Anywhere
 
